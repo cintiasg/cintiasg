@@ -1,6 +1,6 @@
 ## Olá! Eu sou a Cíntia Gomes 👋
 
-- 📚 Estudando a Adatech
+- 📚 Estudando na Adatech
 - 📫 Contate no e-mail: cintia.gomes@attivihost.com.br
 - 😄 Pronomes: ela/dela
 
